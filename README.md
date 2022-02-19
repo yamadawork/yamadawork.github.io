@@ -1,0 +1,1 @@
+# yamadawork.github.io
